@@ -1,0 +1,2 @@
+# strixboi.github.io
+CV
